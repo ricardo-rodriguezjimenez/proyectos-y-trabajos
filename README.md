@@ -12,3 +12,4 @@ https://www.youtube.com/watch?v=1U_LeOXXkrI<br>
 # community manager
 https://www.instagram.com/bmtoursec/?hl=es-la<br>
 https://www.instagram.com/rayuelaec/?hl=es-la<br>
+https://www.instagram.com/galapagos.experience/?hl=es-la<br>
